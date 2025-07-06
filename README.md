@@ -19,18 +19,17 @@
 <h4 align="center">gad, sad, ptsd, adhd-pi (adhd)</h4>
 <br>
 ✦
+
+<div align="center">
+  
+  <a href="https://www.last.fm/user/thehydromaniac"><img src="https://lastfm-recently-played.vercel.app/api?user=thehydromaniac&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=151B1C" alt="what"></a>
+  <br>
+✦
 <br>
 <br>
 <i>"forever in debt to your priceless advice."</i>
 <br>
 <br>
-✦
-<br>
-<br>
-<div align="center">
-  
-  <a href="https://www.last.fm/user/thehydromaniac"><img src="https://lastfm-recently-played.vercel.app/api?user=thehydromaniac&footer_style=compact_stats&count=1&width=400&loved=true&header_style=none&bg_color=151B1C" alt="what"></a>
-  <br>
 ✦
   
 </div>
