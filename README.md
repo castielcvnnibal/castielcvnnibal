@@ -14,7 +14,7 @@
   <p><img src="https://files.catbox.moe/s07go9.png"><img src="https://files.catbox.moe/v1d72i.png"><img src="https://files.catbox.moe/mqhap7.png"><img src="https://files.catbox.moe/4d8olv.png"><img src="https://files.catbox.moe/xhbhz3.png"><img src="https://files.catbox.moe/nx0jfy.png">
 
 
--> [O1](https://rentry.co/castielsslinky) ★ [O2](https://artfight.net/~hydromaniac) ★ [O3](https://youtube.com/playlist?list=PLg_NTd5hX0l4ZoaKk9ZpYcpH7jBjRLXHV&si=SB10ir6guOz_O8jt)<-
+-> [O1](https://rentry.co/airplane1980) ★ [O2](https://artfight.net/~hydromaniac) ★ [O3](https://youtube.com/playlist?list=PLg_NTd5hX0l4ZoaKk9ZpYcpH7jBjRLXHV&si=SB10ir6guOz_O8jt)<-
 
 <h4 align="center">gad, sad, ptsd, adhd-pi (adhd)</h4>
 <br>
